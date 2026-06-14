@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CUEM890214MCSRSR02
+CUEM890214MCSRSR02
